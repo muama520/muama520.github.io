@@ -1,6 +1,6 @@
 ## 視頻一区<a rel="nofollow noopener" href="http://kvua97.gwyc92.bdcdn.zjyxqb.cn/zz/mkdg61?wfgz" target="_blank">点击进入</a>
 
-## 涩漫<a rel="nofollow noopener" href="https://wghbcbdqyy17.com/ui/comics/main?code=qiuq001260118" target="_blank">点击进入</a>
+## 涩漫<a rel="nofollow noopener" href="https://ibhiljdisl16.com/ui/comics/main?code=qiuq001260118" target="_blank">点击进入</a>
 
 ## 視頻二区<a rel="nofollow noopener" href="https://shifan.tiangongda.online/resource/uploads/518fb8f7-b1e8-4ed4-b04b-0729351fbff8.html?code=xu3nxk0j" target="_blank">点击进入</a>
 
