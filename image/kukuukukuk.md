@@ -1,10 +1,11 @@
-## 視頻一区<a rel="nofollow noopener" href="http://qxts35.nhct63.bdcdn.zjyxqb.cn/zz/mkdg61?EHrq" target="_blank">点击进入</a>
+## 視頻一区<a rel="nofollow noopener" href="http://jkgv11.gxxr34.bdcdn.zjyxqb.cn/zz/mkdg61?ZHap?EHrq" target="_blank">点击进入</a>
 
-## 涩漫<a rel="nofollow noopener" href="https://ibhiljdisl16.com/ui/comics/main?code=qiuq001260118" target="_blank">点击进入</a>
+## 涩漫<a rel="nofollow noopener" href="https://wghbcbdqyy17.com/ui/comics/main?code=qiuq001260118" target="_blank">点击进入</a>
 
-## 視頻二区<a rel="nofollow noopener" href="https://imgcdn.workshop666.cn/upload/3fc82ac0a3b3261c04afe2e5a7303375.html?code=t9svz03f" target="_blank">点击进入</a>
+## 視頻二区<a rel="nofollow noopener" href="https://cdn.yixiaozu.com/prod/seller/userInfo/kP7iW9vJ0nH2sT4tL6aE5fY4jC0pM1mD.html?code=7s3a703f" target="_blank">点击进入</a>
 
-## 視頻三区<a rel="nofollow noopener" href="http://ig13q2.iyaoapp.xin#/s/uwjnpl0j" target="_blank">点击进入</a>
+## 視頻三区<a rel="nofollow noopener" href="http://tw8kqi.iyaoapp.xin#/s/7s2hco0j" target="_blank">点击进入</a>
 
 
-### 永久地址 《btaa.cc》  《kyes.cc》
+### 永久地址：保存本面页为书签 以防丢失
+### 网址地址： 《btaa.cc》  《kyes.cc》
